@@ -36,8 +36,18 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles to be enquired of in the visitation of the Dioces of London, by the reuerende father in God
+Articles
+to be enquired of in the viſitation
+of the Dioces of London, by the
+Reuerende Father in God
 #####Body#####
+
+1. Articles to be enquired of in the
+viſitation of the Dioces of
+London. 1571.
+
+    _ The tenor of the othe, miniſtred to
+the Churchwardens and ſworne men.
 
 **Types of content**
 
