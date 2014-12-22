@@ -36,10 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Articles
-to be enquired of in the viſitation
-of the Dioces of London, by the
-Reuerende Father in God
+
 #####Body#####
 
 1. Articles to be enquired of in the
